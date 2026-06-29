@@ -1,2 +1,2 @@
 **My Resume**
-[Pre Final Year Student]
+[Final Year Student]
